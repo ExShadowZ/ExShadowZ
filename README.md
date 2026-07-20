@@ -82,6 +82,6 @@ ChatGPT, GitHub Copilot, Cursor — used for rapid prototyping, driver scaffoldi
 
 ### 📫 Let's Connect
 
-[GitHub](https://github.com/yourhandle) · [LinkedIn]([https://linkedin.com/in/yourprofile](https://www.linkedin.com/in/roman-melnichonak-196577420?utm_source=share_via&utm_content=profile&utm_medium=member_android))
+[GitHub]([https://github.com/yourhandle](https://github.com/ExShadowZ)) · [LinkedIn]([https://linkedin.com/in/yourprofile](https://www.linkedin.com/in/roman-melnichonak)
 
 ---
